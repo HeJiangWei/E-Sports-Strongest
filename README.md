@@ -12,3 +12,10 @@ We ship the package by DHL, EMS, UPS. All the order shipment is FREE and has no 
 
 AUTHENTICITY ASSURED
 Discover the greatest styles from the world’s leading boutiques, retailer. We provide buyer protection guaranteed on all purchases. 
+
+
+Please contact us if you have any questions
+
+sale@magicshoes.top
+
+Tank you！
