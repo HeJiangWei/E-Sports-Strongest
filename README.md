@@ -16,6 +16,6 @@ Discover the greatest styles from the world’s leading boutiques, retailer. We 
 
 Please contact us if you have any questions
 
-sale@magicshoes.top
+hejiangwei152@gmail.com
 
 Tank you！
