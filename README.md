@@ -1,20 +1,11 @@
-Meta Shoes is a global platform to buy the greatest footwear at up to 80% off price!
+Cold Defender, was created to ensure you to get your loved designer winter footwears, like ugg, at one of the cheapest price. We provide a good and convenient delivery service, as well as the competitive price. You will get the best service here. We are here for you!
 
-Shop new SNEAKERS, BOOTS, UGG, HEELS, Slippers, Loafers, Flats, Sandals, Wedges from around the world. Discover exclusive drops, new releases, vintage finds and archival styles. Now shipping to over 170 countries.
-SHOP GLOBAL DESIGNER BRANDS
-Explore over all kinds of listings from streetwear and designer brands including Nike, Air Jordan, adidas, Yeezy, Off-White, Comme des Garçons, Supreme, Gucci, UGG, Fendi, Louis Vuitton, and more. As while you can enjoy our shoe collections by brands, like Nike air force 1, SB Dunk, AIR MAX 97, UGG X Telfar, Adidas Yeezy. Find your style by our  user-friendly filter function.
+When it comes to winter uggs, we deliver in spades! The Cold Defender is a marketplace to dive deep into the world of high-end products from top designers across the globe. With a deep understanding of the pre-loved winter footwear industry since 2011, The Cold Defender is a good market. The Cold Defender accepts and ships deisigner items to 90+ countries that span Asia, North America, Africa, South America, Australia, Europe, and Oceania.
 
-NEVER MISS A DROP
-Find the right products at the right price. Track upcoming releases, get notifications, save your most-wanted styles and place offers.
+Update New Items Timely
 
-Free Shipping
-We ship the package by DHL, EMS, UPS. All the order shipment is FREE and has no amount limit. Just enjoy the shopping, we take the others.
+We provide wonderful designer shoes including designer classic, boots, slippers, sneakers, etc. We keep update our designer items and add the new items timely.
 
-AUTHENTICITY ASSURED
-Discover the greatest styles from the world’s leading boutiques, retailer. We provide buyer protection guaranteed on all purchases. 
-
-
-Please contact us if you have any questions
 
 hejiangwei152@gmail.com
 
